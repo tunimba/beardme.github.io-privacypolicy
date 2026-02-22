@@ -54,4 +54,4 @@ We may revise this policy from time to time. Please refer to the "Last updated" 
 
 If you have any questions or concerns about this Privacy Policy or our data practices, please contact us:
 
-📧 Email: app.beardme@gmail.com
+📧 Email: tunahanaktay.apps@gmail.com
