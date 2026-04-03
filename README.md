@@ -1,6 +1,6 @@
 # Privacy Policy — Beardio
 
-Last Updated: 2026/3/15
+Last Updated: 2026/4/3
 
 ## 1. Acceptance of Terms
 
